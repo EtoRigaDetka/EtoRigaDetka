@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on Android inside app ad`s skipper
 - 🤔 I’m looking for help with sys admin internship
 - 📫 How to reach me: georgijslepetjans@gmail.com
-- 😄 Pronouns: Geaorgy
+- 😄 Pronouns: Georgy
 - ⚡ Fun fact: In first grade i won the city chess tournament
   
